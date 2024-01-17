@@ -1,2 +1,2 @@
-# hash
-ways to make money online
+# Cash
+Ways to make money online
